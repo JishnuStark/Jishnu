@@ -1,1 +1,2 @@
-# Jishnu
+# Jishnu P G
+# Studying BCA
